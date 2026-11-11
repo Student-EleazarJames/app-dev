@@ -20,6 +20,7 @@ that they went way beyond for what we expect for this series from its very first
 - Well Handled Expressions and Characterization
 - Amazing Story Writing
 - and many more
+
 Despite being a sequel, this movie can be watched without the knowledge of the first film, making it very beginner-friendly to watch. An absolute
 cinematic *masterpiece* that you don't want to miss. One of my very favorite scenes of the film was definitely the final showdown between Puss in
 Boots and a character I do not want to spoil, you have to watch the film to know what I'm talking about, it was one of the film's most defining
